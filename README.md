@@ -2,7 +2,7 @@
      
      👀   Interested in getting kinetic and contributing to digital evolution
      
-     🌱   Finighing a React.JS course and soon to begin Ruby & Rails
+     🌱   Currently learning Ruby (Rails to follow)
      
      💞️   I’m looking to collaborate on progressing large and small scale environmental projects
      
