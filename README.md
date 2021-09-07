@@ -6,7 +6,7 @@
      
      💞️   I’m looking to collaborate on progressing large and small scale environmental projects
      
-     🌊   Surfing in the NorthEast in the meantime
+     🌊   Surfing in the NorthEast USA in the meantime
      
      📫   Electronic mail - jfergie93@gmail.com      
      
