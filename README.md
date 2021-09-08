@@ -10,7 +10,7 @@
      
      📫   Electronic mail - jfergie93@gmail.com      
      
-     ♔   a game of chess! - https://www.chess.com/member/fannypackferg
+     ♔ ♕ ♖ ♗ ♘ ♙ - https://www.chess.com/member/fannypackferg
                   
 
 <!---
