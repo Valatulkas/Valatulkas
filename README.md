@@ -2,9 +2,9 @@
      
      👀   Interested in getting kinetic and contributing to digital evolution
      
-     🌱   Currently learning Ruby (Rails to follow)
+     🌱   Currently learning Monolithic Rails w/ React Front End
      
-     💞️   I’m looking to collaborate on progressing large and small scale environmental projects
+     💞️   Hoping to collaborate on progressing large and small scale environmental projects
      
      🌊   Surfing in the NorthEast USA in the meantime
      
