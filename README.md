@@ -2,13 +2,13 @@
      
      👀   Interested in getting kinetic and contributing to digital evolution
      
-     🌱   Currently learning Monolithic Rails w/ React Front End
+     🌱   Currently learning how to incorporate React front ends into Rails Monotlith Apps
      
-     💞️   Hoping to collaborate on progressing large and small scale environmental projects
+     💞️   Hoping to progress large and small environmental projects
      
      🌊   Surfing in the NorthEast USA in the meantime
      
-     📫   Electronic mail - jfergie93@gmail.com      
+     📫   jfergie93@gmail.com      
      
      ♔ ♕ ♖ ♗ ♘ ♙ - https://www.chess.com/member/fannypackferg
                   
