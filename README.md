@@ -1,4 +1,4 @@
-     👋   Eyo! I'm Jack - @Valatulkas
+     👋   Eyo! I'm Jack Ferg
      
      👀   Interested in getting kinetic and contributing to digital evolution
      
